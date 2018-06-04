@@ -1,1 +1,3 @@
 # hailsatanmicrosoft
+
+for the lolz. 
